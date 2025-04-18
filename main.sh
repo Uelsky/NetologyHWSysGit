@@ -1,1 +1,1 @@
-New version is comming
+New version is ready
